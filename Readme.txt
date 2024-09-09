@@ -1,0 +1,1 @@
+Ovo mi je prva verzija fajla, nisam nesto odusevljena ali ok
